@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @SadiaSadiq1214
+R- 👋 Hi, I’m @SadiaSadiq1214
 - 👀 I’m interested in Art.
 - 🌱 I’m currently learning WMA...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on well organized company.
 - 📫 How to reach me .
 - sadiakhan123459@gmail.com
 - 😄 Pronouns: She/Her...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Reading Novels.
 
 <!---
 SadiaSadiq1214/SadiaSadiq1214 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
