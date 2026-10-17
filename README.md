@@ -1,4 +1,4 @@
-R- 👋 Hi, I’m @SadiaSadiq1214
+- 👋 Hi, I’m @SadiaSadiq1214
 - 👀 I’m interested in Art.
 - 🌱 I’m currently learning WMA...
 - 💞️ I’m looking to collaborate on well organized company.
