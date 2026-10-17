@@ -5,7 +5,7 @@
 - 📫 How to reach me .
 - sadiakhan123459@gmail.com
 - 😄 Pronouns: She/Her...
-- ⚡ Fun fact: ... Reading Novels.
+- ⚡ Fun fact: ... Combining LOgic and CreaTivity.
 
 <!---
 SadiaSadiq1214/SadiaSadiq1214 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
